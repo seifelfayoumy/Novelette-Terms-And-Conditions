@@ -56,7 +56,7 @@ Our failure to enforce any right or provision of these Terms will not be conside
 
 ## 9. Contact Us
 
-If you have any questions about these Terms, please contact us.
+If you have any questions about these Terms, please contact us at support@noveletteapp.com.
 
 ---
 
